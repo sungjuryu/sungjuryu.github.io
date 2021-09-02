@@ -1,2 +1,0 @@
-# sungjuryu.github.io
-# readme
